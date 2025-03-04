@@ -8,3 +8,5 @@
 - ༉‧₊˚. Please do not refer to me as a man, as it may trigger some massive dysphoria on my part.
 
 - ༉‧₊˚.Feel free to interact, I don't bite. I have no DNI list, just follow common sense.
+
+https://tenor.com/view/hehe-homestuck-gif-25180927
