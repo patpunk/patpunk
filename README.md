@@ -9,4 +9,4 @@
 
 - ༉‧₊˚.Feel free to interact, I don't bite. I have no DNI list, just follow common sense.
 
-https://tenor.com/view/hehe-homestuck-gif-25180927
+![tenor](https://github.com/user-attachments/assets/303fcbb8-cd30-47fe-a75c-ee48f1018ebd)
